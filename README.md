@@ -20,7 +20,7 @@ Email Me 👉 ✉️ **rizwanalam707040@gmail.com.com** For Collaboration/Projec
 
 
 ## 🌐 Socials:
-[![LinkedIn](https://www.linkedin.com/feed/)
+[![LinkedIn](https://www.linkedin.com/in/rizwan-alam-4918ba374)
 
 📧 Email: rizwanalam707040@gmail.com
 
