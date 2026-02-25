@@ -9,7 +9,6 @@ Email Me 👉 ✉️ **rizwanalam707040@gmail.com.com** For Collaboration/Projec
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** Enter your email here
-- 😄 **Pronouns:** Imran Sir
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 <!-- Snake Game Repo View -->
