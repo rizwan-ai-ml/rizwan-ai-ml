@@ -1,5 +1,5 @@
 #  Hi 👋, I'm Rizwan Alam
-**A passionate AI/ML Devloper || ML Engineer || Kafka Admin from India**
+**A passionate AI/ML Devloper || ML Engineer || 
 
 Email Me 👉 ✉️ **rizwanalam707040@gmail.com.com** For Collaboration/Project or Anything Else. 😊😊
 
